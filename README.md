@@ -17,3 +17,33 @@
 $\color{rgb(250, 219, 185)}{\textsf{l}}\color{rgb(248, 198, 146)}{\textsf{o}}\color{rgb(236, 140, 114)}{\textsf{o}}\color{rgb(194, 78, 75)}\color{(rgb(194, 78, 75)}{\textsf{n}}$ $\color{rgb(175, 36, 57)}{\textsf{!}}\color{rgb(175, 36, 57)}$
 
 $\color{rgb(250, 219, 185)}{\textsf{t}}\color{rgb(248, 198, 146)}{\textsf{h}}\color{rgb(236, 140, 114)}{\textsf{e}}\color{rgb(255, 102, 143)}\color{rgb(194, 78, 75)}{\textsf{y}}$ $\color{rgb(175, 36, 57)}{\textsf{/}}\color{rgb(175, 36, 57)}$ $\color{rgb(194, 78, 75)}{\textsf{t}}\color{rgb(236, 140, 114)}{\textsf{h}}\color{rgb(248, 198, 146)}{\textsf{e}}\color{rgb(250, 219, 185)}\color{(rgb(194, 78, 75)}{\textsf{m}}$ $\color{rgb(250, 219, 185)}{\textsf{,}}\color{rgb(250, 219, 185)}$ $\color{rgb(250, 219, 185)}{\textsf{ag}}\color{rgb(248, 198, 146)}{\textsf{en}}\color{rgb(236, 140, 114)}{\textsf{de}}\color{rgb(255, 102, 143)}\color{rgb(194, 78, 75)}{\textsf{r}}$ $\color{rgb(175, 36, 57)}{\textsf{☆}}\color{rgb(175, 36, 57)}$
+
+<details>
+ <summary> </summary>
+
+ ![9eb8efc6](https://github.com/user-attachments/assets/1bdf9f65-ea44-4609-9eb2-f2df609318bd)
+ byi ::
+
+14-16 age range
+
+fictkin
+
+mentally unwell
+
+i don't talk a ton to people I don't know well.
+
+^^ regardless of that i enjoy making friends / moots
+</details>
+<details>
+ <summary>  </summary>
+
+ ![9eb8efc6](https://github.com/user-attachments/assets/1bdf9f65-ea44-4609-9eb2-f2df609318bd)
+ dni/iwc ::
+
+really just basic dni (pro/darkship , homophobes , etc.). i block freely but rarely
+
+
+dniuid people under 13 and over 17
+</details>
+
+</div>
