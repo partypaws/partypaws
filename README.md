@@ -1,8 +1,10 @@
-wip...
-
 <div align=center>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sunshiney&size=25&pause=1000&color=FF99A3&center=true&width=435&lines=hey+there+%2C+summerboy+%2C;let+'+s+go+for+a+drive+!)](https://git.io/typing-svg)
+
+
+
+![ezgif com-crop (2)](https://github.com/user-attachments/assets/9c8947fb-e686-42d7-9aed-4d7a31f69174)
 
 
 $\color{rgb(255, 255, 204)}{\textsf{l}}\color{rgb(255, 204, 184)}{\textsf{o}}\color{rgb(255, 153, 163)}{\textsf{o}}\color{rgb(255, 102, 143)}\color{(rgb(255, 102, 143))}{\textsf{n}}$ $\color{rgb(255, 13, 107)}{\textsf{!}}\color{rgb(255, 13, 107)}$
